@@ -1,0 +1,72 @@
+# Moona Hoshinova – 【Original Song】Distortion【Moona Hoshinova】
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+(Mmm, yeah, mmm)
+Distortion
+Up and coming those lies you sow
+Best think it through
+(Don’t let em fool you)
+Falsify your witness, let your story stand atop
+(of your) tiny little fibs, crackin’ right
+through ya old facade
+Sheep you led (yeah)
+To the slaughterpin (uh)
+Watch ‘em bleed out
+Fake Fake Fake Fake
+Who you wanna be? You’re so
+Fake Fake Fake Fake
+You little animal (animal)
+Fake Fake Fake Fake
+Money where ya mouth is, come on show me watcha
+talkin’ bout
+(I can hear ‘em yell)
+Ah, look me in my eyes
+Tell me every lie
+Ah, I can see your end, can’t save you
+Ladada don’t beg for it now
+Forgiveness is a virtue
+Ladada don’t beg for it now
+(Now)
+Uh, your fallen dynasty
+Another tragedy
+Uh, the winner only when you rewrite history
+Disregard every opportunity for redemption
+I’ma dig it all up
+I’ma wear ‘em all out
+I’m a tickin’ timebomb, no time for time out
+Divinity
+Where’s your dignity?
+Will the rain wash all your sins away? Oh no!
+Fake Fake Fake Fake
+Who you wanna be? You’re so
+Fake Fake Fake Fake
+You little animal (animal)
+Fake Fake Fake Fake
+Money where ya mouth is, come on show me watcha
+talkin’ bout
+(I can hear ‘em yell)
+Ah, look me in my eyes
+Tell me every lie
+Ah, I can see your end, can’t save you
+Ladada don’t beg for it now
+Forgiveness is a virtue
+Ladada don’t beg for it now
+(Now)
+Fake Fake Fake Fake
+Fake Fake Fake Fake
+Fake Fake Fake Fake
+Fake Fake Fake
+(Run)
+Oh you can hide in your shame, oh
+Oh woah
+(I can hear em’ yell)
+Ah, look me in my eyes
+Tell me every lie
+Ah, I can see your end, can’t save you
+Ladada don’t beg for it now
+Forgiveness is a virtue
+Ladada don’t beg for it now
+(Now)
+```
