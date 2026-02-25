@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "【Original Song】Distortion【Moona Hoshinova】",
+  "base_artist": "Moona Hoshinova",
+  "createdAt": "2026-02-25T14:21:55.048785Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "Distortion",
+      "artist": "Moona Hoshinova",
+      "has_synced": false,
+      "path": "select/pl_01_Distortion_Moona_Hoshinova.txt"
+    }
+  ]
+}
